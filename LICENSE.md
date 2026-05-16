@@ -1,4 +1,4 @@
-# 
+# premium JetBrains Rider for PC | JetBrains Rider for Windows Extension | code-formatting + custom-themes offers the most advanced JetBrains Rider for PC | JetBrains Rider for
 
 
 
